@@ -1,3 +1,3 @@
 # Tutorials (pdf)
 
-#### This Ebooks are for education purpose.
+#### This Ebooks are for educational purpose.
